@@ -1,1 +1,1 @@
-compra velificada
+ **compra velificada
